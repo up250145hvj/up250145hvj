@@ -16,6 +16,9 @@ Si tengo algo que decir sobre mi, supongo que lo pondria en una pequeña lista s
     - Pero tambien disfruto de algunas otras canciones y la verdad no me molesta el reggaeton.
 - Me gustaria aprender sobre ciberseguridad. Aunque tambien tengo como sueño desarrollar videojuegos, pero creo que eso lo tenddre que posponer un rato por lo dificil que fue tener que trabajar con uno en mi otra carrera.
 -  😐 No suelo hablar mucho y creo que esto lo han notado mucho de mis compañeros. No quiero ser grosero, pero no soy casi de salir a otros lugares, pero **intento** ser mas sociable porque se que necesitare socializar con mas personas y saber comunicarme. <sub><sup>*Aunque es todavia dificil para mi*<sub><sup>
+- Y por ultimo pero no menos importante, le voy al pumas.
+
+Esas son algunas cosas sobre mi. Espero poder conocer mas gente por aqui.
 
 <!--
 **up250145hvj/up250145hvj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
