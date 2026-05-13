@@ -16,9 +16,13 @@ Si tengo algo que decir sobre mi, supongo que lo pondria en una pequeña lista s
     - Pero tambien disfruto de algunas otras canciones y la verdad no me molesta el reggaeton.
 - Me gustaria aprender sobre ciberseguridad. Aunque tambien tengo como sueño desarrollar videojuegos, pero creo que eso lo tenddre que posponer un rato por lo dificil que fue tener que trabajar con uno en mi otra carrera.
 -  😐 No suelo hablar mucho y creo que esto lo han notado mucho de mis compañeros. No quiero ser grosero, pero no soy casi de salir a otros lugares, pero **intento** ser mas sociable porque se que necesitare socializar con mas personas y saber comunicarme. <sub><sup>*Aunque es todavia dificil para mi*<sub><sup>
-- Y por ultimo pero no menos importante, le voy al pumas.
+- Me interesa mucho la programacion y tuve la oportunidad de trabajar en un videojuego cuando estuve en mi otra carrera, aunque ahora quisiera enfocarme a ciberseguridad y quiza a desarrollo de web. *No estoy seguro de si querre trabajar en un videojuego en un futuro o a lo mucho sera mas como la creacion de un mod para un videojuego.*
 
-Esas son algunas cosas sobre mi. Espero poder conocer mas gente por aqui.
+Esas son algunas cosas sobre mi. Espero poder conocer mas gente por aqui y aprender mas sobre este apartado de la tecnologia que es ahora el pan de cada dia en nuestras vidas.
+
+---
+
+**Jesus Hernandez Villafuerte**
 
 <!--
 **up250145hvj/up250145hvj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
